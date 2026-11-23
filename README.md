@@ -1,1 +1,0 @@
-# ALTAI-Akademi-Skills
